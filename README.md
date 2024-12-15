@@ -1,9 +1,5 @@
-- 👋 HELLO <3
-- 🙃 CALL ME SCOTTIE 
-- 📋loves fixing problem ig
-- I need some friends 😔
+- HELLO <3
 - any prounous is ok
-  .・゜゜・
-- 🍬 Fun fact:im a disco ball fr 🪩:3 /j
+- 🍬 Fun fact:im a 𝙙𝙞𝙨𝙘𝙤 𝙗𝙖𝙡𝙡 fr 🪩:3 /j
 - 
-<!--- I'm a multifandom and I had a lots of fandoms.
+<!--- ɪ ɴᴇᴇᴅ sᴏᴍᴇ ғʀɪᴇɴᴅs :(
