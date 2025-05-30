@@ -1,7 +1,7 @@
 <h1>
 
 
-me if you even care
+I love whatever is this
 
-![image alt](https://github.com/GoAwayImEmo/GoAwayImEmo/blob/0f7128bd2d2325787a68eacab91ba82de19031ac/5d05f3d936733f09f97516a93539be97.jpg) 
-just a silly goober 
+![image alt](https://github.com/GoAwayImEmo/GoAwayImEmo/blob/6c250e346f1f80c3b26a6140012900db015e9acd/99dee61bb20244c352ed28f393c16262.jpg) 
+
